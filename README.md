@@ -1,3 +1,2 @@
-![λήψη](https://github.com/user-attachments/assets/094eb8bd-5647-4ea2-ab53-2ebb237ba818)
-
+https://64.media.tumblr.com/c6e1a89715dd76206fc89a630765675d/a16bba63e011e837-c0/s540x810/df12cbfea692e036a80e804167780de12c003904.gifv
 
